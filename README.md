@@ -1,0 +1,1 @@
+https://javhot.pages.dev/
